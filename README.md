@@ -10,7 +10,7 @@ fandoms I'm in !!!
 
 Genshin, ALNST, MDZS, TGCF, and many more. The main 4 are the fandoms I'm most active in, though >ᴗ<
 
-artist !!! I don't post my art that much though. I might include an art piece here if ever
+I'm an artist (˶ᵔ ᵕ ᵔ˶) I don't post my art that much though. I might include an art piece here if ever
 
 coughs in voice impressionist (Nahida, Venti, Columbina)
 
