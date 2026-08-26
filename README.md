@@ -4,7 +4,7 @@
 
 (Oh please please cure me Eirin . . . )
 
-<img width="673" height="673" alt="image" src="https://github.com/user-attachments/assets/560b1ed8-f068-4e7f-9300-5c86397b29ba" />
+<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/560b1ed8-f068-4e7f-9300-5c86397b29ba" />
 
 Always allowing c+h unless my name says otherwise !! (e.g. dni) come chill with me
 
