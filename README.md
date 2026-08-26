@@ -6,7 +6,7 @@
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/560b1ed8-f068-4e7f-9300-5c86397b29ba" />
 
-Always allowing c+h unless my name says otherwise !! (e.g. dni) come chill with me
+Always allowing c+h unless my name says otherwise !! even with ‘dni’! just please don’t talk to me if you do so. come chill with me
 
 I swear I’m a fun person 🥹 but it mighttt take a bit of courage to completely open up to someone so please bear with me
 
