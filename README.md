@@ -8,7 +8,7 @@
 
 Always allowing c+h unless my name says otherwise !! (e.g. dni) come chill with me
 
-I swear I’m really chill 🥹 but it mighttt take a bit of courage to completely open up to someone so please bear with me
+I swear I’m a fun person 🥹 but it mighttt take a bit of courage to completely open up to someone so please bear with me
 
 fandoms I'm in !!!
 
