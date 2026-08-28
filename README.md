@@ -1,10 +1,10 @@
+<img width="600" height="200" alt="image" src="https://github.com/user-attachments/assets/754396f2-4d38-4158-bb93-e23f29278517" />
+
 ⋮ ⌗ ┆ 恋の病はね 辛いからね 、
 
 どんな娘でも 張り裂けそうな胸抱え
 
 (Oh please please cure me Eirin . . . )
-
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/560b1ed8-f068-4e7f-9300-5c86397b29ba" />
 
 Always allowing c+h unless my name says otherwise !! even with ‘dni’! just please don’t talk to me if you do so, thanks
 
