@@ -19,9 +19,9 @@ Always allowing c+h unless my name says otherwise !! even with ‘dni’ ! just 
 
 I swear I’m a fun person 🥹 but it mighttt take a bit of courage to completely open up to someone so please bear with me
 
-sandrone and mitya kin here... glances at my unfinished tasks, shared personality traits, how often i procrastinate... and on top of it all, how i share most of his habits
+sandrone and mitya kin here... glances at my unfinished tasks, shared personality traits, how often i procrastinate . . . and on top of it all, how i share most of his habits
 
-well... HEAVY mitya kin. I'm not a fictionkin, but we share a braincell heheh
+well . . . HEAVY mitya kin. I'm not a fictionkin, but we share a braincell heheh
 
 fandoms I'm in !!!
 
