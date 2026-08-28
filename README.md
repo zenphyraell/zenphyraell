@@ -13,9 +13,13 @@
 
 (Oh please please cure me Eirin . . . )
 
+xxxxx
 Always allowing c+h unless my name says otherwise !! even with ‘dni’! just please don’t talk to me if you do so, thanks
 
 I swear I’m a fun person 🥹 but it mighttt take a bit of courage to completely open up to someone so please bear with me
+
+sandrone and mitya kin here... glances at unfinished tasks and how often i procrastinate
+well... HEAVY mitya kin. I'm not a fictionkin, but we share a braincell heheh
 
 fandoms I'm in !!!
 
