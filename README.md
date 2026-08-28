@@ -1,6 +1,10 @@
 <div align="center">
 <img width="600" height="200" alt="image" src="https://github.com/user-attachments/assets/754396f2-4d38-4158-bb93-e23f29278517" />
 
+
+
+
+
 ⋮ ⌗ ┆ 恋の病はね 辛いからね 、
 
 どんな娘でも 張り裂けそうな胸抱え
