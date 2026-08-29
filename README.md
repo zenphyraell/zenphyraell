@@ -15,7 +15,7 @@
 
 xxxxx
 
-Always allowing c+h unless my name says otherwise !! even with ‘dni’ ! just please don’t talk to me if you do so, thanks
+Always allowing c+h !! highly encouraged. if my name says ‘dni’, you can still cuddle but please don’t talk to me. thanks
 
 I swear I’m a fun person 🥹 but it mighttt take a bit of courage to completely open up to someone so please bear with me
 
