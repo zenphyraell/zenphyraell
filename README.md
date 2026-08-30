@@ -19,7 +19,7 @@ Always allowing c+h !! highly encouraged. if my name says ‘dni’, you can sti
 
 I swear I’m a fun person 🥹 but it mighttt take a bit of courage to completely open up to someone so please bear with me
 
-sandrone and mitya kin here... glances at my unfinished tasks, shared personality traits, how often i procrastinate . . . and on top of it all, how i share most of his habits
+mitya kin here... glances at my unfinished tasks, shared personality traits, how often i procrastinate . . . and on top of it all, how i share most of his habits
 
 well . . . HEAVY mitya kin. I'm not a fictionkin, but we share a braincell heheh
 
@@ -28,7 +28,5 @@ fandoms I'm in !!!
 Genshin, ALNST, MDZS, TGCF, and many more. The main 4 are the fandoms I'm most active in, though >ᴗ<
 
 I'm an artist (˶ᵔ ᵕ ᵔ˶) I don't post my art that much haha ! I might include an art piece here if ever
-
-coughs in voice impressionist (Nahida, Venti, Columbina)
 
 have a good day ! °❀⋆.ೃ࿔*:･
