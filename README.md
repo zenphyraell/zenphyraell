@@ -25,6 +25,6 @@ Genshin, ALNST, MDZS, TGCF, and many more. The main 4 are the fandoms I'm most a
 
 I'm an artist (˶ᵔ ᵕ ᵔ˶) I don't post my art that much haha ! I might include an art piece here if ever
 
-note that if I’m playing on laptop I might react late… sighs. I usually play on mobile. apologies !!
+note: if I’m playing on laptop, I’m pretty slow to react… I usually play on mobile. apologies !!
 
 have a good day ! °❀⋆.ೃ࿔*:･
