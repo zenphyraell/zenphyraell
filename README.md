@@ -23,7 +23,9 @@ Always allowing c+h !! highly encouraged. if my name says ‘dni’, ask if you 
 
 I swear I’m a fun person 🥹 but it mighttt take a bit of courage to completely open up to someone
 
-fandoms: Genshin, ALNST, MDZS, TGCF, omori and many more. The main 5 are the fandoms I'm most active in, though >ᴗ<
+fandoms: Genshin, ALNST, MDZS, TGCF and OMORI. I know many more, but the main 5 are the fandoms I'm most active in >ᴗ<
+
+(I make skins from fandoms I don’t know likely because I like the design… haha…)
 
 I'm an artist (˶ᵔ ᵕ ᵔ˶) I don't post my art that much haha ! I might include an art piece here if ever
 
