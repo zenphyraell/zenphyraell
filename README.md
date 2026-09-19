@@ -15,7 +15,7 @@
 
 xxxxx
 
-Always allowing c+h !! highly encouraged. if my name says ‘dni’, ask if you can cuddle with me. green names are no exception. if I ignore/don’t respond to you that’s likely a no. don’t pmo ok? (friendly)
+Always allowing c+h !! highly encouraged. if my name says ‘dni’, ask if you can cuddle with me. green names are no exception. if I ignore/don’t respond to you that’s likely a no. don’t try to pmo ok? (friendly)
 
 I swear I’m a fun person 🥹 but it mighttt take a bit of courage to completely open up to someone
 
