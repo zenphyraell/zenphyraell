@@ -1,5 +1,5 @@
 <div align="center">
-<img width="800" height="300" alt="b47e76fc02a2d7bab8970f0eecc3806a (1)" src="https://github.com/user-attachments/assets/0c61482d-f356-4cdd-9557-ddf77e82990d" />
+<img width="800" height="300" alt="b47e76fc02a2d7bab8970f0eecc3806a (1)" src="https://ph.pinterest.com/pin/886575876672765403/" />
 
 <3
 
