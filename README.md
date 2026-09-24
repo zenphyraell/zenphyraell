@@ -1,10 +1,13 @@
 <div align="center">
 
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/0113a35c-8106-4e56-9a73-a461aad9effb" />
-<img width="1000" height="180" alt="image" src="https://github.com/user-attachments/assets/26358920-8cc2-429e-b7f8-e6239bd46840" />
 
 $\color{#ebe2d3}{\text{𑣲.}}$ <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/709ac244-0819-4c00-b9fc-767a4471b0df" /> $\color{#dbcdb4}{\text{ᶠᵉᵉˡⁱⁿᵍ ˢⁱˡˡʸ ʰᵉʰᵉ — ᨳଓ .}}$
 
+𝜗𝜚 ݁ ˖.. insert cool header
+
+ᶻ 𝗓 𐰁 .ᐟ 𝑰𝑵𝑻𝑹𝑶𝑫𝑼𝑪𝑻𝑰𝑶𝑵
+<img width="670" height="670" alt="Web_Photo_Editor (1)" src="https://github.com/user-attachments/assets/35804ab0-1287-420f-91da-4e4a7f71e72d" align="left">
 
 $\color{#dbcaa9}{\text{ʜᴇʟʟᴏ !}}$ $\color{#d6cebf}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#d1c1a3}{\text{ᵒᵒᵐfⁱᵉ !}}$
 
