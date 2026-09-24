@@ -12,3 +12,7 @@ $\color{#ada58e}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#7a735d}{\text{𝑰𝑵𝑻
 $\color{#918870}{\text{ʜᴇʟʟᴏ !}}$ $\color{#d6cebf}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#d1c1a3}{\text{ᵒᵒᵐfⁱᵉ !}}$
 
 WIP ;-;
+
+<div align="center">
+
+  $\color{#ebe2d3}{\text{᭝ ᨳଓ ՟}}$
