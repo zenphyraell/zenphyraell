@@ -6,10 +6,9 @@ $\color{#ebe2d3}{\text{𑣲.}}$ <img width="70" height="70" alt="image" src="htt
 
 $\color{#a3987a}{\text{𝜗𝜚 ݁ ˖..}}$ $\color{#cfc4a7}{\text{insert ᴄᴏᴏʟ header}}$
 
-$\color{#ada58e}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#7a735d}{\text{𝑰𝑵𝑻𝑹𝑶𝑫𝑼𝑪𝑻𝑰𝑶𝑵}}$
-
 <img width="600" height="660" alt="Web_Photo_Editor (1)" src="https://github.com/user-attachments/assets/86b7fb7a-4af5-46e7-91bc-04c3b5732fef" div align="left">
 
+$\color{#ada58e}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#7a735d}{\text{𝑰𝑵𝑻𝑹𝑶𝑫𝑼𝑪𝑻𝑰𝑶𝑵}}$
 
 
 $\color{#918870}{\text{ʜᴇʟʟᴏ !}}$ $\color{#d6cebf}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#d1c1a3}{\text{ᵒᵒᵐfⁱᵉ !}}$
