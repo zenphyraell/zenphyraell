@@ -4,7 +4,7 @@
 
 $\color{#ebe2d3}{\text{𑣲.}}$ <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/709ac244-0819-4c00-b9fc-767a4471b0df" /> $\color{#dbcdb4}{\text{ᶠᵉᵉˡⁱⁿᵍ ˢⁱˡˡʸ ʰᵉʰᵉ — ᨳଓ .}}$
 
-$\color{#dbcaa9}{\text{ʜᴇʟʟᴏ ^^}}$ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ ᵒᵒᵐfⁱᵉ ! 
+$\color{#dbcaa9}{\text{ʜᴇʟʟᴏ ^^ }}$ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ ᵒᵒᵐfⁱᵉ ! 
 
 WIP ;-;
 
