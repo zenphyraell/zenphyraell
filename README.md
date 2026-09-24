@@ -2,8 +2,6 @@
 
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/0113a35c-8106-4e56-9a73-a461aad9effb" />
 
-<img width="1300" height="400" alt="image" src="https://github.com/user-attachments/assets/1b035959-7401-45e8-a20d-84bda7e82b5d" />
-
 𝜗ৎ𝜗 .
 
 Always allowing c+h !! highly encouraged. if my name says ‘dni’, ask if you can cuddle with me. if I ignore/don’t respond to you that’s likely a no ^^
