@@ -2,9 +2,11 @@
 
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/0113a35c-8106-4e56-9a73-a461aad9effb" />
 
-𑣲. <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/709ac244-0819-4c00-b9fc-767a4471b0df" /> ᶠᵉᵉˡⁱⁿᵍ ˢⁱˡˡʸ ʰᵉʰᵉ — ᨳଓ .
-𝜗ৎ𝜗 .
+𑣲. <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/709ac244-0819-4c00-b9fc-767a4471b0df" /> $\color{#eddec2}{\text{ᶠᵉᵉˡⁱⁿᵍ ˢⁱˡˡʸ ʰᵉʰᵉ — ᨳଓ .}}$
 
+
+
+𝜗ৎ𝜗 .
 Always allowing c+h !! highly encouraged. if my name says ‘dni’, ask if you can cuddle with me. if I ignore/don’t respond to you that’s likely a no ^^
 
 I swear I’m a fun person 🥹 but it mighttt take a bit of courage to completely open up to someone
