@@ -1,8 +1,8 @@
 <div align="center">
 
-<img width="1000" height="157" alt="image" src="https://github.com/user-attachments/assets/0113a35c-8106-4e56-9a73-a461aad9effb" />
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/0113a35c-8106-4e56-9a73-a461aad9effb" />
 
-<img width="1300" height="100" alt="image" src="https://github.com/user-attachments/assets/1b035959-7401-45e8-a20d-84bda7e82b5d" />
+<img width="1300" height="400" alt="image" src="https://github.com/user-attachments/assets/1b035959-7401-45e8-a20d-84bda7e82b5d" />
 
 𝜗ৎ𝜗 .
 
