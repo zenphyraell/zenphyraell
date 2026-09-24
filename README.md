@@ -1,7 +1,8 @@
 <div align="center">
 
-WIP ;-;
----
+<img width="736" height="736" alt="9549d480b9779b4b511c08add6daa0a2" src="https://github.com/user-attachments/assets/02ad2640-843e-4793-a040-501d5219933b">
+
+
 
 𝜗ৎ𝜗 .
 
