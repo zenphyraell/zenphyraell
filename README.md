@@ -8,10 +8,7 @@ $\color{#a3987a}{\text{𝜗𝜚 ݁ ˖..}}$ $\color{#cfc4a7}{\text{insert ᴄᴏ�
 
 uh random image
 
-$\color{#ada58e}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#7a735d}{\text{𝑰𝑵𝑻𝑹𝑶𝑫𝑼𝑪𝑻𝑰𝑶𝑵}}$
-
-
-$\color{#918870}{\text{ʜᴇʟʟᴏ !}}$ $\color{#d6cebf}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#d1c1a3}{\text{ᵒᵒᵐf !}}$
+$\color{#ada58e}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#918870}{\text{ʜᴇʟʟᴏ !}}$ $\color{#d6cebf}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#d1c1a3}{\text{ᵒᵒᵐf !}}$
 
 <div align="center">
 
