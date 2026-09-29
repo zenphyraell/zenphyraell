@@ -6,7 +6,6 @@ $\color{#ebe2d3}{\text{𑣲.}}$ <img width="70" height="70" alt="image" src="htt
 
 $\color{#a3987a}{\text{𝜗𝜚 ݁ ˖..}}$ $\color{#cfc4a7}{\text{insert ᴄᴏᴏʟ header}}$
 
-uh random image
 
 $\color{#ada58e}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#918870}{\text{ʜᴇʟʟᴏ !}}$ $\color{#d6cebf}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#d1c1a3}{\text{ᵒᵒᵐf !}}$
 
@@ -14,4 +13,4 @@ $\color{#ada58e}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#918870}{\text{ʜᴇʟʟᴏ
 
 $\color{#ebe2d3}{\text{᭝ ᨳଓ ՟}}$
 
-WIP ;-; i'm trying my best ok... sigh
+WIP ;-; i'm trying my best ok...
