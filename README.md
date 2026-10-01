@@ -6,8 +6,7 @@ $\color{#c3d9db}{\text{𑣲.}}$ <img width="70" height="70" alt="image" src="htt
 
 $\color{#a1c3c7}{\text{𝜗𝜚 ݁ ˖..}}$ $\color{#aed2d6}{\text{insert ᴄᴏᴏʟ header}}$
 
-
-$\color{#b4c9cc}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#aed2d6}{\text{ʜᴇʟʟᴏ !}}$ $\color{#b2d0d4}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#98b3b8}{\text{ᵒᵒᵐf !}}$
+$\color{#819699}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#b4c9cc}{\text{ʜᴇʟʟᴏ !}}$ $\color{#b2d0d4}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#98b3b8}{\text{ᵒᵒᵐf !}}$
 
 <div align="center">
 
