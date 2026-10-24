@@ -4,7 +4,7 @@
 
 $\color{#cfcdc4}{\text{𑣲.}}$ $\color{#cfcdc4}{\text{ ₙₐᵣwₕₐₗₛ, ₙₐᵣwₕₐₗₛ  — ᨳଓ .}}$
 
-$\color{#b8b6ab}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#b8b6ab}{\text{ʜᴇʟʟᴏ !}}$ $\color{#b8b6ab}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#aba99d}{\text{ᵒᵒᵐf !}}$
+$\color{#b8b6ab}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#b8b6ab}{\text{ʜᴇʟʟᴏ !}}$ $\color{#bdbbae}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#aba99d}{\text{ᵒᵒᵐf !}}$
 
 <div align="center">
 
