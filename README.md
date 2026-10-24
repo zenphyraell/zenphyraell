@@ -12,7 +12,7 @@ $\color{#b8b6ab}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#b8b6ab}{\text{ʜᴇʟʟᴏ
 
 $\color{#b8b6ab}{\text{᭝ ᨳଓ ՟}}$
 
-$\color{#aba99d}{\text{𝙖𝙧𝙩𝙞𝙨𝙩 , 𝙬𝙧𝙞𝙩𝙚𝙧 !}}$ $\color{#d1cfc2}{\text{𝗒𝗈𝗎 𝗐𝗂𝗅𝗅 𝗈𝖿𝗍𝖾𝗇 𝗌𝖾𝖾 𝗆𝖾 𝗂𝗇 𝖼𝗅𝖺𝗌s .}}$
+<img width="50" height="50" alt="IMG_7821" src="https://github.com/user-attachments/assets/d431fb83-fe9a-4396-b509-52dddb089d90" /> $\color{#aba99d}{\text{𝙖𝙧𝙩𝙞𝙨𝙩 , 𝙬𝙧𝙞𝙩𝙚𝙧 !}}$ $\color{#d1cfc2}{\text{𝗒𝗈𝗎 𝗐𝗂𝗅𝗅 𝗈𝖿𝗍𝖾𝗇 𝗌𝖾𝖾 𝗆𝖾 𝗂𝗇 𝖼𝗅𝖺𝗌s .}}$
 
 <details>
   <summary><code>𝙄𝙉𝙏𝙀𝙍𝙀𝙎𝙏𝙎</code></summary>
