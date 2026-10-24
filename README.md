@@ -4,9 +4,7 @@
 
 $\color{#cfcdc4}{\text{𑣲.}}$ $\color{#cfcdc4}{\text{ ₙₐᵣwₕₐₗₛ, ₙₐᵣwₕₐₗₛ  — ᨳଓ .}}$
 
-$\color{#a1c3c7}{\text{𝜗𝜚 ݁ ˖..}}$ $\color{#a2b9bd}{\text{insert ᴄᴏᴏʟ header}}$
-
-$\color{#819699}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#a4bcbf}{\text{ʜᴇʟʟᴏ !}}$ $\color{#b2d0d4}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#98b3b8}{\text{ᵒᵒᵐf !}}$
+$\color{#b8b6ab}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{cfcdc4}{\text{ʜᴇʟʟᴏ !}}$ $\color{#b8b6ab}{\text{ fᵉᵉˡ ᶠʳeᵉ tᵒ ᵇᵉᶜᵒᵐᵉ ᵐʸ}}$ $\color{#aba99d}{\text{ᵒᵒᵐf !}}$
 
 <div align="center">
 
