@@ -2,7 +2,7 @@
 
 <img width="1100" height="100" alt="image" src="https://github.com/user-attachments/assets/0113a35c-8106-4e56-9a73-a461aad9effb" />
 
-$\color{#8ca0a3}{\text{𑣲.}}$ <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/709ac244-0819-4c00-b9fc-767a4471b0df" /> $\color{#99b6ba}{\text{ᶠᵉᵉˡⁱⁿᵍ ˢⁱˡˡʸ ʰᵉʰᵉ — ᨳଓ .}}$
+$\color{#cfcdc4}{\text{𑣲.}}$ <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/709ac244-0819-4c00-b9fc-767a4471b0df" /> $\color{#cfcdc4}{\text{ₕₑₗₗₒ ₜₕₑᵣₑ ! — ᨳଓ .}}$
 
 $\color{#a1c3c7}{\text{𝜗𝜚 ݁ ˖..}}$ $\color{#a2b9bd}{\text{insert ᴄᴏᴏʟ header}}$
 
