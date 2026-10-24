@@ -2,7 +2,7 @@
 
 <img width="1100" height="100" alt="image" src="https://github.com/user-attachments/assets/0113a35c-8106-4e56-9a73-a461aad9effb" />
 
-$\color{#cfcdc4}{\text{𑣲.}}$ <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/709ac244-0819-4c00-b9fc-767a4471b0df" /> $\color{#cfcdc4}{\text{ₕₑᵣₑ ! — ᨳଓ .}}$
+$\color{#cfcdc4}{\text{𑣲.}}$ $\color{#cfcdc4}{\text{ ₙₐᵣwₕₐₗₛ, ₙₐᵣwₕₐₗₛ  — ᨳଓ .}}$
 
 $\color{#a1c3c7}{\text{𝜗𝜚 ݁ ˖..}}$ $\color{#a2b9bd}{\text{insert ᴄᴏᴏʟ header}}$
 
