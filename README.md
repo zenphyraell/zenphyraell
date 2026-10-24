@@ -8,7 +8,7 @@ $\color{#b8b6ab}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#b8b6ab}{\text{ʜᴇʟʟᴏ
 
 <div align="center">
 
-<img width="3024" height="550" alt="IMG_7822" src="https://github.com/user-attachments/assets/a30e64d8-498d-404c-92cf-ecd8b45f03fe" />
+<img width="3024" height="500" alt="IMG_7822" src="https://github.com/user-attachments/assets/a30e64d8-498d-404c-92cf-ecd8b45f03fe" />
 
 $\color{#b8b6ab}{\text{᭝ ᨳଓ ՟}}$
 
