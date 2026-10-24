@@ -12,6 +12,13 @@ $\color{#b8b6ab}{\text{ᶻ 𝗓 𐰁 .ᐟ}}$ $\color{#b8b6ab}{\text{ʜᴇʟʟᴏ
 
 $\color{#c3d8db}{\text{᭝ ᨳଓ ՟}}$
 
-$\color{#aba99d}{\text{𝙖𝙧𝙩𝙞𝙨𝙩 , 𝙬𝙧𝙞𝙩𝙚𝙧 !}}$ $\color{#d1cfc2}{\text{𝗒𝗈𝗎 𝗐𝗂𝗅𝗅 𝗈𝖿𝗍𝖾𝗇 𝗌𝖾𝖾 𝗆𝖾 𝗂𝗇 𝖼𝗅𝖺𝗌𝗌 𝗈𝗋 𝖾𝗂𝗍𝗁𝖾𝗋 𝗈𝖿 𝗍𝗁𝖾 𝗍𝗐𝗈 .}}$
+$\color{#aba99d}{\text{𝙖𝙧𝙩𝙞𝙨𝙩 , 𝙬𝙧𝙞𝙩𝙚𝙧 !}}$ $\color{#d1cfc2}{\text{𝗒𝗈𝗎 𝗐𝗂𝗅𝗅 𝗈𝖿𝗍𝖾𝗇 𝗌𝖾𝖾 𝗆𝖾 𝗂𝗇 𝖼𝗅𝖺𝗌s .}}$
 
-WIP, unfortunately
+<details>
+  <summary><code>𝙄𝙉𝙏𝙀𝙍𝙀𝙎𝙏𝙎</code></summary>
+  <p>$\color{#b8b6ab}{\text{ᴏᴍᴏʀɪ , ᴛᴀᴋᴏᴘɪ'ꜱ ᴏʀɪɢɪɴᴀʟ ꜱɪɴ , ʜᴏʏᴏᴠᴇʀꜱᴇ , ᴛɢᴄꜰ , ᴍᴅᴢꜱ}}$</p>
+</details>
+
+
+
+WIP
